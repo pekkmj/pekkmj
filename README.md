@@ -5,7 +5,7 @@ A few things about me!
   - 🌍 I'm based in Boston, Massachusetts
   - 🐻 I am a BIG Bruins fan (can't you tell?)
   - 🎥 I love to watch movies and won't shut up aout them
-  - 🎧 I collect vinyls and am always looking for new music to discover
+  - 🎧 I collect vinyls and always looking for new music to discover
   - 🧗 Whenever I can, I love to go hiking.
   - ✉️  Reach out to me at [pekkmj@gmail.com](mailto:pekkmj@gmail.com)
 
