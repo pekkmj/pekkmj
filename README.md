@@ -1,6 +1,6 @@
 ### Michael Pekkarinen
 ------------------------------
-Currently seeking a software engineer position or any React-based role. I am always open to learning!
+Currently seeking a web developer position or any React-based role. I am always open to learning!
 
 A few things about me!
   - 🌍 I'm based in Boston, Massachusetts
