@@ -7,6 +7,7 @@ A few things about me!
   - 🎥 I love to watch movies and won't shut up aout them
   - 🎧 I collect vinyls and am always looking for new music to discover
   - 🧗 Whenever I can, I love to go hiking.
+  - ✉️  Reach out to me at [pekkmj@gmail.com](mailto:pekkmj@gmail.com)
 
 ### Skills
 
