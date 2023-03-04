@@ -1,5 +1,5 @@
 ### Michael Pekkarinen
-==============================
+------------------------------
 
 A few things about me!
   - 🌍 I'm based in Boston, Massachusetts
